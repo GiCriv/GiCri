@@ -1,2 +1,2 @@
 # GiCri
-My Personal Repository
+☕ 🍕 🌻
